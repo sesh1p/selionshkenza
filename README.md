@@ -1,4 +1,4 @@
-# selionshkenza
+# Hi there, I'm Selion 👋
 🚀 Product Manager | Product Owner | Digital Transformation | Supply Chain & Logistics
 💡 Passionate about bridging the gap between business needs, people and technology to build digital products that create real value.
 
