@@ -4,7 +4,7 @@
 
 I combine hands-on experience in product management, agile software development, IT project management and cross-functional team leadership, with a strong background in supply chain, logistics and transport.
 
-Outcome over Output. Always.
+Outcome over Output. Always!
 
 🎯 Expertise
 - Product Management & Ownership – Product strategy, roadmaps, prioritization and stakeholder management
